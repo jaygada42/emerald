@@ -2,6 +2,9 @@
 title: What's bothering you?
 ---
 ![Test](/emerald/img/img-test.png "Test")
+
+
+
 If you know me and if we have stayed up late texting each other on Whatsapp several times, you have probably come across this question before. In the conversation that follows, some of you fill me in with the details of your fears and anxiety. Others, however, choose to dismiss the question. What I infer from this is that either nothing bothers you enough to talk about it or you are averse to opening up to people. Or maybe you would like talking about it, just not with me. 
 
 But one thing is true, whether you like to admit it or not, that we all the going through a crisis. For some of us, it has just arrived and for others, it has stayed for a while now. I’m not doing very well myself these days. But I know I’ll be okay. One step at a time. Sometimes bearing it is all we can do with pain or anxiety. Surviving it, in whatever way possible. But there are no tools that are off-limits in our trial of getting better. Some of us choose to pen it down, this anxiety we feel, on a piece of paper or a diary. Some of us try to get it out through art. Some pick up a lost hobby while others even turn to alcohol and drugs. But sometimes these tools aren’t enough to express your emotions with the intensity you need to in order to feel better.
